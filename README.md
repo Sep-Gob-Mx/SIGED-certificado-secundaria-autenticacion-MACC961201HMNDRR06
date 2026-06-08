@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MACC961201HMNDRR06
+MACC961201HMNDRR06
